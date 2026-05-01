@@ -194,3 +194,4 @@
 
 - נשמת מלכות: https://drive.google.com/drive/folders/15gmfdo8FvWh4vpJPqBrYXgaezaPIkhWn?usp=sharing
 - צ׳אטג׳יפיטי: https://chatgpt.com/s/m_69e546d9989c8191b86a395bd99bbe31
+- 🔥 מפת שליטה וניצחון על היצר הרע (YeTzErMaP – Yetzer & Map) 🔥: https://chatgpt.com/share/69f490fd-17d4-83eb-a3ba-43c8ce851d54
