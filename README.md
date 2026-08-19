@@ -2,6 +2,8 @@
 
 <img width="1536" height="1024" alt="Cybernetic mind- light vs darkness" src="https://github.com/user-attachments/assets/c9fb4db3-910c-489e-b12b-41b4e284b1a0" />
 
+<img width="1055" height="1491" alt="מפת 40 התכונות של היצר הרע" src="https://github.com/user-attachments/assets/fc0de437-fc72-46c3-b8fe-8d920780c8ec" />
+
 
 ## 🎯 מבט-על: להבין את המערכת – כדי לשלוט בה
 
